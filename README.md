@@ -9,5 +9,5 @@
 - 💬 Ask me about Favorite programming language
 - 📫 How to reach me: Facumazza@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: 
+
 
